@@ -1,0 +1,1 @@
+# hardkid's personal blog
